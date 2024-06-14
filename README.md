@@ -2,4 +2,4 @@
 
 Just learning github
 thats all..
-thanks for watching
+thanksf
